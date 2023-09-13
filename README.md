@@ -1,0 +1,6 @@
+- I’m Ahmeda313
+- I’m interested in ...
+- I’m currently learning ...
+- Open to collaborate on anything what I know
+- contact --syedahmeda313@gmail.com
+
